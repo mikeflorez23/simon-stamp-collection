@@ -1,6 +1,11 @@
 Simon's Stamp Collection App
 ---
 
-# About simon
+# About Simon's stamps
 
-New york times raves this is the best stampp collection of the ages !
+Simon has been collecting stamps since 1981 he has a  wide variety of expensive and exctoic chinese stamps.
+
+New York Times raves this is the best stampp collection of the ages !
+
+Stuff abot simon's Stamps here..
+
